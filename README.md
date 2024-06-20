@@ -2,5 +2,4 @@
 
 _meu nome e maria gabreielly_ 💓
 
-´estou estudando no alura´🧑‍🎓
-**espero que goste dos meus projetos**
+- estou estudando no alura 🧑‍🎓
