@@ -1,6 +1,6 @@
 ## _seja bem vindo ao meu perfil_ ❤️‍🔥🤍🇧🇷
 
-_meu nome e Maria Gabreielly_ 💓
+_meu nome e Maria Gabrielly_ 💓
 
 - estou estudando no alura (https://www.alura.com.br) 
 - estou me desenvolvendo na linguagem JavaScript
@@ -11,4 +11,4 @@ _meu nome e Maria Gabreielly_ 💓
 💖
 
 
-![](https://media1.tenor.com/m/-LbMSoQ9LQMAAAAC/minion-laughing.gif)
+https://media1.tenor.com/m/SvXwSnuFdtUAAAAC/hug-love.gif
