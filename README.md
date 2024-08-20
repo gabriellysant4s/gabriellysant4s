@@ -11,4 +11,4 @@ _meu nome e Maria Gabrielly_ 💓
 💖
 
 
-https://media1.tenor.com/m/SvXwSnuFdtUAAAAC/hug-love.gif
+(https://media1.tenor.com/m/SvXwSnuFdtUAAAAC/hug-love.gif)
